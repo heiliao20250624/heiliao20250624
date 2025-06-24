@@ -11,7 +11,7 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://dy3-05.pages.dev/>|抖音成人版抖音</a>
+点击访问：<a href="https://dy3-05.pages.dev/">|抖音成人版抖音</a>
 
 点击访问：<a href="https://hl982.pages.dev/">黑料社区成人版</a>
 
